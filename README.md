@@ -49,6 +49,6 @@ Social Medias and Support
 
 - Join my [Discord Server](https://discord.gg/WVNasrZ)!
 
-- Follow me on [Twitter](httos://twitter.com)
+- Follow me on [Twitter](https://twitter.com)
 
 - Subscribe to me on [YouTube](https://www.youtube.com/vegansloth)
